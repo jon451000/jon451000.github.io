@@ -10,3 +10,5 @@ Er wird fast ausschließlich in Spielen der Firma Nintendo verwendet, da er auch
 * Klemptner
 * Rot
 * M auf der Mütze
+
+> Mamma Mia
