@@ -11,4 +11,7 @@ Er wird fast ausschließlich in Spielen der Firma Nintendo verwendet, da er auch
 * Rot
 * M auf der Mütze
 
+Mario sagte:
+
 > Mamma Mia
+> Its a me Mario
