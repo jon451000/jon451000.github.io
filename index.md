@@ -11,8 +11,7 @@ Er wird fast ausschließlich in Spielen der Firma Nintendo verwendet, da er auch
 * Rot
 * M auf der Mütze
 
-As Grace Hopper said:
+Mario sagte:
 
-> I’ve always been more interested
-
-> in the future than in the past.
+> Mamma Mia.
+> Its a me, Mario.
